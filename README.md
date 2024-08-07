@@ -1,15 +1,16 @@
-## Hi there 👋
+## welcome to my profille
 
-<!--
-**mekalim/mekalim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+my  name is makalim
 
-Here are some ideas to get you started:
+- seeyuh
+- pi
+- diferentday
+  
+- ###voce pode entrar em  contado comigo pelo ✉
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- kauelima16102006@gmail.com
+
+- @kaueriinka
+
+![](![image](https://github.com/user-attachments/assets/ed34a728-c894-4d19-9605-f21105db7560)
+
